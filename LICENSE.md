@@ -1,4 +1,4 @@
-# 
+# smart Jupyter Notebook for PC | Jupyter Notebook for Windows Plugin | data-analysis + data-visualization offers the most advanced Jupyter Notebook for PC | Jupyter Notebook for
 
 
 
